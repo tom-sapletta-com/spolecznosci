@@ -1,4 +1,4 @@
-# spolecznosci
+# rodzina i filozofia
 
 ## Jakie korzyści dają filozofie i religie społeczności?
 
